@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Anisa Jakupi!
 - 👀 I’m interested in technology and coding.
-- 🌱 I’m currently learning web development. 
+- 🌱 I’m currently learning everything and nothing. 
 - 💞️ I’m looking to collaborate on a website project. 
 - 📫 How to reach me [Discord - Princess#7484](https://discordapp.com/users/285141309302505474) 
 - 📚 Hobbies: Reading/Writing/Coding/Gaming. 

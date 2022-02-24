@@ -9,7 +9,7 @@
 - 🤔 I'm looking for help in organizing my files. 
 - ⚡Fun Fact: Listen to over 6 hours of music everyday. :) 
 
-<img src="https://github-readme-stats.vercel.app/api?username=AnisaEJ&&show_icons=true&title_color=ffffff&icon_color=ffffff&text_color=daf7dc&bg_color=7421de">
+<img src="https://github-readme-stats.vercel.app/api?username=AnisaEJ&&show_icons=true&title_color=ffffff&icon_color=ffffff&text_color=335dcc&bg_color=7421de">
 
 
 <!---

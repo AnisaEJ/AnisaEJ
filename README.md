@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on a website project. 
 - 📫 How to reach me [Discord - Princess#7484](https://discordapp.com/users/285141309302505474) 
 - 📚 Hobbies: Reading/Writing/Coding/Gaming. 
-- 💬 Ask about my Keyboard/Poem collection. 
+- 💬 Ask about my Keyboard/ collection. 
 - 🙂 Pronouns: She/her
 - 🤔 I'm looking for help in organizing my files. 
 - ⚡Fun Fact: Listen to over 6 hours of music everyday. :) 
